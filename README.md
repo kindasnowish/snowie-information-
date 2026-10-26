@@ -1,6 +1,6 @@
 > . HIYA!!! names snowie!! ^_^
 
-> . 15, Ambivert, Bisexual
+> . 15, Ambivert, Bisexual. i CAN get moody at times.. 
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
 
@@ -8,8 +8,8 @@
 
 > . 5/31
 
-> . mostly hanging out on island or near library ! 
+> . mostly hanging out on island or near library, sometimes at club
 
-> . discord : kindasnowish i don't accept random friend requests!
+> . discord : kindasnowish
 
  ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
